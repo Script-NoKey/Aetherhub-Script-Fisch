@@ -1,0 +1,2 @@
+# Aetherhub-Script-Fisch
+FISCH Script Pastebin 2025 UPDATE DUPLICATE FISH | INSTANT GET FISH ENCHANT (NO CUT NO EDIT) ❄️
